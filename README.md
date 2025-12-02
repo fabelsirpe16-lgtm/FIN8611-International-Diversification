@@ -88,7 +88,7 @@ pour les deux périodes étudiées.
 
 
 
-6\. Auteur
+**6. Auteur**
 
 Fabel SIRPE — ESG UQAM (2025)
 
